@@ -5,6 +5,8 @@
  -ESTOU TENDO QUE USAR ALURA 😓​
  -ESTOU DESENVOLVENDO A LINGUAGEM JAVA SCRIPT
                           **PRETENDO SER UM INFOMATICO**
- *MEU HOB FAVORITO CONCERTEZA NÃO É PROGAMAR 😎​😎🙏​                      
+  😎​😎🙏​                      
 
   /Utilizo esse espaço para estudar/ 🧏🏻‍♂️
+
+  
